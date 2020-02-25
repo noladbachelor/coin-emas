@@ -1,0 +1,2 @@
+# coin-emas
+Asah otak
